@@ -1,4 +1,4 @@
-# Tiisetso Tukane
+# Tiisetso Xolane Tukane
 ### IT Prospect
 
 📞 063 040 7222 | 📧 222206616@mycput.ac.za | 📍 South Africa | 🐙 [GitHub](https://github.com/TiisetsoLaboratory)
